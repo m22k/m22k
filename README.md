@@ -1,4 +1,4 @@
-![Preview image](blob:https://imgur.com/1a7ec06a-82a8-4f39-8636-427f230a88be)
+![Preview image](https://imgur.com/a/oJpOVZ9)
 
 <p> 
 <p align="center">
