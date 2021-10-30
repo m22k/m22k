@@ -1,3 +1,4 @@
+<p align="center">
 ![Preview image](https://i.imgur.com/Q8yOnd8.gif)
 
 <p> 
